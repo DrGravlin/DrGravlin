@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DrGravlin
+- 👀 I’m interested in VEX VRC Robotics and 3D printing.
+- 🌱 I’m currently learning finance.
